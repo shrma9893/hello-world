@@ -1,1 +1,1 @@
-learning shouldl be spontaneous
+learning should be spontaneous
