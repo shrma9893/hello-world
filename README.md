@@ -1,1 +1,1 @@
-# hello-world
+learning shouldl be spontaneous
